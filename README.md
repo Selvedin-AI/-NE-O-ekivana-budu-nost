@@ -1,1 +1,1 @@
-# -NE-O-ekivana-budu-nost
+# -NE-Ocekivana-buducnost
